@@ -1,8 +1,3 @@
-![Иллюстрация к новелле](https://github.com/jon/coolproject/raw/master/image/image.png)
+![иллюстрация к новелле](https://github.com/i-am-so-bad/i-am-so-bad/raw/blob/main/старлайт.jpg)
 
-![Image alt](https://github.com/{username}/{repository}/raw/{branch}/{path}/image.png)
 
-{username} — ваш ник на ГитХабе;
-{repository} — репозиторий где хранятся картинки;
-{branch} — ветка репозитория;
-{path} — путь к месту нахождения картинки.
