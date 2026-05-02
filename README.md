@@ -4,4 +4,4 @@
 </p>
 
 <img src="https://biscuit.crd.co/assets/images/gallery100/07fbb6ab.gif?v=edffcd2f" width="100" height="50">
-<img src="https://pix.crd.co/assets/images/gallery14/1913c688_original.gif?v=15eb4270" width="500" height="400">
+<img src="https://pix.crd.co/assets/images/gallery14/1913c688_original.gif?v=15eb4270" width="400" height="300">
