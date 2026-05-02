@@ -5,7 +5,7 @@
 
 <img src="https://biscuit.crd.co/assets/images/gallery100/07fbb6ab.gif?v=edffcd2f" width="100" height="50">
 
-STAMPS! <img src="<img src="https://pixels.crd.co/assets/images/gallery56/054b794a.gif?v=29416114">
+STAMPS! <img src="https://pixels.crd.co/assets/images/gallery56/054b794a.gif?v=29416114">
 
 [![stamp-1777751265-7a3b2d57030747fb9c61b5c12fd1951e.gif](https://i.postimg.cc/ry57jdXM/stamp-1777751265-7a3b2d57030747fb9c61b5c12fd1951e.gif)](https://postimg.cc/Jt4T4zz2)
 [![stamp-1777751651-d151a39516d145d7811ae6d7fa2b46cd.gif](https://i.postimg.cc/ZKKjN0Tt/stamp-1777751651-d151a39516d145d7811ae6d7fa2b46cd.gif)](https://postimg.cc/qgS8VJhj)
