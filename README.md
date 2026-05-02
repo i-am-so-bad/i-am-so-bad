@@ -4,4 +4,4 @@
 </p>
 
 <img src="https://biscuit.crd.co/assets/images/gallery100/07fbb6ab.gif?v=edffcd2f" width="100" height="50">
-<img src="https://pix.crd.co/assets/images/gallery14/1913c688_original.gif?v=15eb4270" width="150" height="100">
+<img src="https://stamps.pixelwavestudio.net/static/output/stamp_1777726134_c6ee00efc5f74717998a88008c143d7f.gif?1777726133309" width="150" height="100">
