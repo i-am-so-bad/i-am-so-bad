@@ -20,5 +20,5 @@ STAMPS! <img src="https://pixels.crd.co/assets/images/gallery56/054b794a.gif?v=2
 [![stamp-1777754025-38713efa960f4e1b83e1ad7abe372c0f.gif](https://i.postimg.cc/GpGg3NQR/stamp-1777754025-38713efa960f4e1b83e1ad7abe372c0f.gif)](https://postimg.cc/B8ZBMmk7)
 [![stamp-1777754460-d640ef679a2d44249c65ab8d25e9c53c.gif](https://i.postimg.cc/y8XSVyZf/stamp-1777754460-d640ef679a2d44249c65ab8d25e9c53c.gif)](https://postimg.cc/5Xytgvpv)
 [![stamp-1777754533-ac6a574e1f2b4145a296c93b6a4a2cbb.gif](https://i.postimg.cc/SjbJ4nQT/stamp-1777754533-ac6a574e1f2b4145a296c93b6a4a2cbb.gif)](https://postimg.cc/K3QZrvMB)
-
+[![f58e0a5e53e16d87190f8a3b4b2a0df4e7ecb5d4.gif](https://i.postimg.cc/FHZFcKBf/f58e0a5e53e16d87190f8a3b4b2a0df4e7ecb5d4.gif)](https://postimg.cc/688NxBww)
 ![](https://komarev.com/ghpvc/?username=i-am-so-bad)
