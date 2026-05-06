@@ -12,11 +12,12 @@
 <img src="https://pixels.crd.co/assets/images/gallery19/9276f217.gif?v=29416114" width="100" height="70">
 
 
-
+</p>
 <p align="center">
 𝑺𝑻𝑨𝑴𝑷𝑺! <img src="https://pixels.crd.co/assets/images/gallery19/3c7b9ead.gif?v=29416114">
 
-[![848132b0d6807251741e6a1baf5f3cb3564d6b09.gif](https://i.postimg.cc/YqdBH2dg/848132b0d6807251741e6a1baf5f3cb3564d6b09.gif)](https://postimg.cc/svGNPzdD)
+
+[![848132b0d6807251741e6a1baf5f3cb3564d6b09.gif](https://i.postimg.cc/YqdBH2dg/848132b0d6807251741e6a1baf5f3cb3564d6b09.gif)](https://postimg.cc/svGNPzdD)[![848132b0d6807251741e6a1baf5f3cb3564d6b09.gif](https://i.postimg.cc/YqdBH2dg/848132b0d6807251741e6a1baf5f3cb3564d6b09.gif)](https://postimg.cc/svGNPzdD)
 
 [![272b323dd6dcd5ac34e3f1d2577971640227890a.gif](https://i.postimg.cc/76nY1MXY/272b323dd6dcd5ac34e3f1d2577971640227890a.gif)](https://postimg.cc/jwCbtfGG)                   [![13243493b49dbf06ee84db01742d3004d2d34e09.gif](https://i.postimg.cc/fTLTXddD/13243493b49dbf06ee84db01742d3004d2d34e09.gif)](https://postimg.cc/NL3cv5bz)     [![1d11a6924b4531c630d479a0a5e703ca6f5ec853.gif](https://i.postimg.cc/GhVry5rj/1d11a6924b4531c630d479a0a5e703ca6f5ec853.gif)](https://postimg.cc/QHQRLSFB)   [![5d7c495ccba04aa1f26d4f80a585c961d3d39d22.gif](https://i.postimg.cc/9F65Mwty/5d7c495ccba04aa1f26d4f80a585c961d3d39d22.gif)](https://postimg.cc/sv40HXL2)   [![e3c8b028b05b591b8bebfa9b7498047a8cbab443.gif](https://i.postimg.cc/MG8nyTxX/e3c8b028b05b591b8bebfa9b7498047a8cbab443.gif)](https://postimg.cc/zy0DNqy1)     [![ebab5cca10bc0aa2b96436215bcf03f13d58f9c0.gif](https://i.postimg.cc/XN5Rpcx1/ebab5cca10bc0aa2b96436215bcf03f13d58f9c0.gif)](https://postimg.cc/RqMsYtkw)   
 
