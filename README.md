@@ -1,7 +1,7 @@
 <p align="center">
-<img src="https://biscuit.crd.co/assets/images/gallery46/8d689c38.gif?v=edffcd2f" width="800" height="40">
+<img src="https://biscuit.crd.co/assets/images/gallery85/9fb40e2d.gif?v=edffcd2f" width="700" height="40">
 <p align="center">
-<img width="700" height="400" alt="image" src="https://github.com/i-am-so-bad/i-am-so-bad/blob/ab5cb2f6815ef993ddb7f0315f258310bb49b0ce/irumas%20trio%201.png" />
+<img width="700" height="400" alt="image" src="https://github.com/i-am-so-bad/i-am-so-bad/blob/67d725d5accb6285f067ff617b4f1081158b0c3b/kim%20dokja%20king.webp" />
 </p>
 <p align="center">
 <img src="https://biscuit.crd.co/assets/images/gallery100/07fbb6ab.gif?v=edffcd2f" width="100" height="50">
