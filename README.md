@@ -12,7 +12,7 @@
 
  <div align="center"> 
    
-   [*tg info*](https://t.me/painparadise/)　　　✧　　　[*tt*](https://www.tiktok.com/@boringshu?_r=1&_d=f2dim2chl9jfjm&sec_uid=MS4wLjABAAAAq-aC3er7tSRabxJcX2yMEq9wSpffhZPGVViEMS2A8rL7UnGLV1heCWxfA56mt9h0&share_author_id=6798506056517026821&sharer_language=en&source=h5_m&u_code=db550ge41b91lc&timestamp=1778258291&user_id=6798506056517026821&sec_user_id=MS4wLjABAAAAq-aC3er7tSRabxJcX2yMEq9wSpffhZPGVViEMS2A8rL7UnGLV1heCWxfA56mt9h0&item_author_type=1&utm_source=copy&utm_campaign=client_share&utm_medium=android&share_iid=7635670847550883605&share_link_id=af12b973-2db5-43d6-aaa1-baf3d265b66d&share_app_id=1233&ugbiz_name=ACCOUNT&ug_btm=b8727%2Cb7360&social_share_type=5&enable_checksum=1/)
+   [*tg info*](https://t.me/painparadise/)　　✧　　[*tiktok*](https://www.tiktok.com/@boringshu/)　　✧　　[*tg dm*](https://t.me/boringshu/)
 
 
 
