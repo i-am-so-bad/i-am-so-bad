@@ -1,3 +1,4 @@
+
 <p align="center">
 <img src="https://64.media.tumblr.com/65b9cffae3c1d4510fb11231fa58a950/cf206a4c0ba73161-09/s540x810/663b1d9e337fb65e360ad328149fcdfd4a7c601a.pnj" width="700" height="90">
   
@@ -7,9 +8,13 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/65b9cffae3c1d4510fb11231fa58a950/cf206a4c0ba73161-09/s540x810/663b1d9e337fb65e360ad328149fcdfd4a7c601a.pnj" width="700" height="90">
 
-</p>
-<p align="center">
-<img src="https://pixels.crd.co/assets/images/gallery19/9276f217.gif?v=29416114" width="100" height="70">
+
+
+ <div align="center"> 
+   
+   [*tg info*](https://t.me/painparadise/)　　　✧　　　[*tt*](https://www.tiktok.com/@boringshu?_r=1&_d=f2dim2chl9jfjm&sec_uid=MS4wLjABAAAAq-aC3er7tSRabxJcX2yMEq9wSpffhZPGVViEMS2A8rL7UnGLV1heCWxfA56mt9h0&share_author_id=6798506056517026821&sharer_language=en&source=h5_m&u_code=db550ge41b91lc&timestamp=1778258291&user_id=6798506056517026821&sec_user_id=MS4wLjABAAAAq-aC3er7tSRabxJcX2yMEq9wSpffhZPGVViEMS2A8rL7UnGLV1heCWxfA56mt9h0&item_author_type=1&utm_source=copy&utm_campaign=client_share&utm_medium=android&share_iid=7635670847550883605&share_link_id=af12b973-2db5-43d6-aaa1-baf3d265b66d&share_app_id=1233&ugbiz_name=ACCOUNT&ug_btm=b8727%2Cb7360&social_share_type=5&enable_checksum=1/)
+
+
 
 
 </p>
@@ -17,7 +22,6 @@
 𝑺𝑻𝑨𝑴𝑷𝑺! <img src="https://pixels.crd.co/assets/images/gallery19/3c7b9ead.gif?v=29416114">
 
 
-[![848132b0d6807251741e6a1baf5f3cb3564d6b09.gif](https://i.postimg.cc/YqdBH2dg/848132b0d6807251741e6a1baf5f3cb3564d6b09.gif)](https://postimg.cc/svGNPzdD)[![848132b0d6807251741e6a1baf5f3cb3564d6b09.gif](https://i.postimg.cc/YqdBH2dg/848132b0d6807251741e6a1baf5f3cb3564d6b09.gif)](https://postimg.cc/svGNPzdD)
 
 [![272b323dd6dcd5ac34e3f1d2577971640227890a.gif](https://i.postimg.cc/76nY1MXY/272b323dd6dcd5ac34e3f1d2577971640227890a.gif)](https://postimg.cc/jwCbtfGG)                   [![13243493b49dbf06ee84db01742d3004d2d34e09.gif](https://i.postimg.cc/fTLTXddD/13243493b49dbf06ee84db01742d3004d2d34e09.gif)](https://postimg.cc/NL3cv5bz)     [![1d11a6924b4531c630d479a0a5e703ca6f5ec853.gif](https://i.postimg.cc/GhVry5rj/1d11a6924b4531c630d479a0a5e703ca6f5ec853.gif)](https://postimg.cc/QHQRLSFB)   [![5d7c495ccba04aa1f26d4f80a585c961d3d39d22.gif](https://i.postimg.cc/9F65Mwty/5d7c495ccba04aa1f26d4f80a585c961d3d39d22.gif)](https://postimg.cc/sv40HXL2)   [![e3c8b028b05b591b8bebfa9b7498047a8cbab443.gif](https://i.postimg.cc/MG8nyTxX/e3c8b028b05b591b8bebfa9b7498047a8cbab443.gif)](https://postimg.cc/zy0DNqy1)     [![ebab5cca10bc0aa2b96436215bcf03f13d58f9c0.gif](https://i.postimg.cc/XN5Rpcx1/ebab5cca10bc0aa2b96436215bcf03f13d58f9c0.gif)](https://postimg.cc/RqMsYtkw)   
 
@@ -29,5 +33,5 @@
   
    @𝘤𝘳𝘺𝘱𝘵𝘪𝘤𝘴𝘦𝘷𝘦𝘯 ; @𝘢𝘴𝘩𝘺𝘮𝘢𝘵𝘪𝘰𝘯𝘴 ; @𝘣𝘭𝘤𝘬𝘴𝘳𝘳𝘳𝘸 ; @𝘭𝘰𝘷𝘦𝘴𝘪𝘤𝘬-𝘭𝘦𝘷𝘦𝘭-𝘶𝘱 ; @𝘳𝘰𝘤𝘬𝘪𝘯-𝘴𝘵𝘪𝘮𝘴 ; @𝘴𝘵𝘢𝘵𝘪𝘤𝘴𝘵𝘢𝘮𝘱𝘴 ; @𝘢𝘻𝘬𝘢𝘳𝘦𝘷521 ; @𝘸𝘢𝘭𝘭𝘢𝘤𝘦-𝘱𝘯𝘨 ; @𝘴𝘵𝘢𝘮𝘱𝘳𝘦𝘲𝘶𝘦𝘴𝘵𝘪𝘦 ; @𝘵𝘩𝘪𝘴𝘥𝘢𝘴𝘵𝘢𝘮𝘱𝘥𝘰𝘦𝘴𝘯𝘰𝘵𝘦𝘹𝘪𝘴𝘵 
 
+<img src="https://komarev.com/ghpvc/?username=i-am-so-bad&style=for-the-badge&color=8b6d46&label=࿐"/>
 
-![](https://komarev.com/ghpvc/?username=i-am-so-bad)
