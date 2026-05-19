@@ -1,13 +1,12 @@
 
 <p align="center">
-<img src="https://64.media.tumblr.com/11ff633f22474e35e840f38bb95b99a5/481836715788cef7-2d/s540x810/3540311319cf9afb83ebe327f94fe141b2807cba.pnj" width="800" height="60">
 
   
 <p align="center">
 <img width="800" height="400" alt="image" src="https://github.com/i-am-so-bad/i-am-so-bad/blob/cbfec2f3cff5b2455f808ebf8d31c3d376a04e6c/tanmen.jpg" />
 
 <p align="center">
-<img src="https://64.media.tumblr.com/11ff633f22474e35e840f38bb95b99a5/481836715788cef7-2d/s540x810/3540311319cf9afb83ebe327f94fe141b2807cba.pnj" width="800" height="60">
+
 
 
 
