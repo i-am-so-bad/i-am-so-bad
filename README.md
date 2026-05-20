@@ -18,7 +18,7 @@
 <p align="center">
  $${\color{pink}𝘿𝙉𝙄}$$
   <p align="center">
-$${\color{grey}𝙝𝙤𝙢𝙤𝙥𝙝𝙤𝙗𝙞𝙘}$$ ; $${\color{grey}𝙣𝙚𝙜𝙖𝙩𝙞𝙫𝙚}$$ && $${\color{grey}𝙖𝙜𝙧𝙚𝙨𝙨𝙞𝙫𝙚}$$ ; $${\color{grey}𝙖 \space 𝙧𝙖𝙘𝙞𝙨𝙩}$$ && $${\color{grey}𝙣𝙖𝙯𝙞𝙨𝙩}$$ ; $${\color{grey}𝙖 \space 𝙗𝙪𝙡𝙡𝙮}$$ ; $${\color{grey}m𝙖𝙣𝙮 𝙛𝙧𝙞𝙚𝙣𝙙𝙨}$$ ; 
+$${\color{grey}𝙝𝙤𝙢𝙤𝙥𝙝𝙤𝙗𝙞𝙘}$$ ; $${\color{grey}𝙣𝙚𝙜𝙖𝙩𝙞𝙫𝙚}$$ && $${\color{grey}𝙖𝙜𝙧𝙚𝙨𝙨𝙞𝙫𝙚}$$ ; $${\color{grey}𝙖 \space 𝙧𝙖𝙘𝙞𝙨𝙩}$$ && $${\color{grey}𝙣𝙖𝙯𝙞𝙨𝙩}$$ ; $${\color{grey}𝙖 \space 𝙗𝙪𝙡𝙡𝙮}$$ ; $${\color{grey}m𝙖𝙣𝙮 \space 𝙛𝙧𝙞𝙚𝙣𝙙𝙨}$$ ; 
 $${\color{grey}𝙘𝙤𝙡𝙙}$$ ; $${\color{grey}𝙬𝙞𝙩𝙝𝙤𝙪𝙩 \space 𝙞𝙣𝙞𝙩𝙞𝙖𝙩𝙞𝙫𝙚 \space 𝙞𝙣 \space 𝙘𝙤𝙢𝙢𝙪𝙣𝙞𝙘𝙖𝙩𝙞𝙤𝙣}$$ ; 𝙪𝙣𝙙𝙚𝙧 11
 
 
