@@ -5,7 +5,7 @@
 <p align="center">
 <img width="800" height="400" alt="image" src="https://github.com/i-am-so-bad/i-am-so-bad/blob/2ff49c70728217f3293cb67d42444e9212eeee62/ichi!!!!!.png">
 <p align="center">
-<img src="https://64.media.tumblr.com/120fd84f6ff5fc8ddb865c04ce68cf02/81d5c6727e69eb15-ce/s540x810/7e0e09578e4b4e901fb5291347b6603b1b39d3c0.pnj" width="800" height="60">
+<img src="https://64.media.tumblr.com/120fd84f6ff5fc8ddb865c04ce68cf02/81d5c6727e69eb15-ce/s540x810/7e0e09578e4b4e901fb5291347b6603b1b39d3c0.pnj" width="800" height="70">
 
 
 
