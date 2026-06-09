@@ -1,32 +1,32 @@
 
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery38/5a4438ee.gif?v=3fc8f5cd" width="800" height="30">
+<img src="https://gifcity.carrd.co/assets/images/gallery38/5a4438ee.gif?v=3fc8f5cd" width="500" height="20">
   
 <p align="center">
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/Z1GwxhY2/815d7a933a16d3eae02721493f303620d7c78d35.gif" alt="815d7a933a16d3eae02721493f303620d7c78d35" width="800" height="440" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/Z1GwxhY2/815d7a933a16d3eae02721493f303620d7c78d35.gif" alt="815d7a933a16d3eae02721493f303620d7c78d35" width="500" height="270" border="0"></a>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/52b4d8f2d5c86575ab549dfb269ebb89/604fcba5d7119327-3b/s540x810/0de984160f48e95aa51a1f3df63fe88db87d5804.gifv" width="810" height="20">
+<img src="https://64.media.tumblr.com/52b4d8f2d5c86575ab549dfb269ebb89/604fcba5d7119327-3b/s540x810/0de984160f48e95aa51a1f3df63fe88db87d5804.gifv" width="510" height="10">
 
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/ed16e212b652825a893d0e5ebe3d5531/1b0f4996bc8b65c4-bc/s540x810/e320d09ff58889e9f90d6747773c656fddbaa0d6.gifv" width="810" height="40" >
+  <img src="https://64.media.tumblr.com/ed16e212b652825a893d0e5ebe3d5531/1b0f4996bc8b65c4-bc/s540x810/e320d09ff58889e9f90d6747773c656fddbaa0d6.gifv" >
 
 
 ##
 
 
-<p align="center">$\color{#fbff33}{\textsf{ ㅤㅤ𝘿 𝙉 𝙄 ㅤㅤ}}$ 
+<p align="center">$\color{#fe33fe}{\textsf{ ㅤㅤ𝘿 𝙉 𝙄 ㅤㅤ}}$ 
   
   <p align="center"> $\color{#7efaf0}{\textsf{ 𝙝𝙤𝙢𝙤𝙥𝙝𝙤𝙗𝙞𝙘 ; 𝙣𝙚𝙜𝙖𝙩𝙞𝙫𝙚 ; 𝙖𝙜𝙧𝙚𝙨𝙨𝙞𝙫𝙚 ; 𝙖 𝙧𝙖𝙘𝙞𝙨𝙩 𝙣𝙖𝙯𝙞𝙨𝙩 ; 𝙖 𝙗𝙪𝙡𝙡𝙮 ; m𝙖𝙣𝙮 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 ; 𝙘𝙤𝙡𝙙 ; }}$
-    <p align="center"> $\color{#fe33fe}{\textsf{ 𝙬𝙞𝙩𝙝𝙤𝙪𝙩 𝙞𝙣𝙞𝙩𝙞𝙖𝙩𝙞𝙫𝙚 𝙞𝙣 𝙘𝙤𝙢𝙢𝙪𝙣𝙞𝙘𝙖𝙩𝙞𝙤𝙣 ; 𝙪𝙣𝙙𝙚𝙧 11 }}$
+    <p align="center"> $\color{#7efaf0}{\textsf{ 𝙬𝙞𝙩𝙝𝙤𝙪𝙩 𝙞𝙣𝙞𝙩𝙞𝙖𝙩𝙞𝙫𝙚 𝙞𝙣 𝙘𝙤𝙢𝙢𝙪𝙣𝙞𝙘𝙖𝙩𝙞𝙤𝙣 ; 𝙪𝙣𝙙𝙚𝙧 11 }}$
 
 ##
 
 <p align="center">
- $\color{#fbff33}{\textsf{𝙈𝘼𝙄𝙉 𝙁𝘼𝙉𝘿𝙊𝙈𝙎}}$
+ $\color{#fe33fe}{\textsf{𝙈𝘼𝙄𝙉 𝙁𝘼𝙉𝘿𝙊𝙈𝙎}}$
 <p align="center"> $\color{#7efaf0}{\textsf{𝘰𝘳𝘷 ; 𝘔𝘏𝘈 ; 𝘯𝘰 𝘩𝘰𝘮𝘦 ; 𝘵𝘦𝘯𝘴𝘶𝘳𝘢 ; 𝘸𝘦𝘢𝘬 𝘩𝘦𝘳𝘰 ; 𝘱𝘩𝘢𝘯𝘵𝘰𝘮 𝘣𝘶𝘴𝘵𝘦𝘳𝘴 ; 𝘳𝘦𝘵𝘶𝘳𝘯 𝘰𝘧 𝘵𝘩𝘦 𝘮𝘰𝘶𝘯𝘵 𝘩𝘶𝘢 𝘴𝘦𝘤𝘵 ; 𝘪𝘤𝘩𝘪 𝘵𝘩𝘦 𝘸𝘪𝘵𝘤𝘩 ; }}$
-<p align="center"> $\color{#fe33fe}{\textsf{𝘵𝘩𝘦 𝘩𝘶𝘯𝘵𝘦𝘳 𝘸𝘢𝘯𝘵𝘴 𝘵𝘰 𝘭𝘪𝘷𝘦 𝘲𝘶𝘪𝘦𝘵𝘭𝘺 ; 𝘵𝘩𝘦 𝘴 𝘤𝘭𝘢𝘴𝘴𝘦𝘴 𝘵𝘩𝘢𝘵 𝘪 𝘳𝘢𝘪𝘴𝘦𝘥 ; 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 𝘵𝘰 𝘥𝘦𝘮𝘰𝘯 𝘴𝘤𝘩𝘰𝘰𝘭 𝘪𝘳𝘶𝘮𝘢 𝘬𝘶𝘯 ; 𝘢𝘯𝘢𝘴𝘵𝘢𝘴𝘪𝘻 ; }}$ 
+<p align="center"> $\color{#7efaf0}{\textsf{𝘵𝘩𝘦 𝘩𝘶𝘯𝘵𝘦𝘳 𝘸𝘢𝘯𝘵𝘴 𝘵𝘰 𝘭𝘪𝘷𝘦 𝘲𝘶𝘪𝘦𝘵𝘭𝘺 ; 𝘵𝘩𝘦 𝘴 𝘤𝘭𝘢𝘴𝘴𝘦𝘴 𝘵𝘩𝘢𝘵 𝘪 𝘳𝘢𝘪𝘴𝘦𝘥 ; 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 𝘵𝘰 𝘥𝘦𝘮𝘰𝘯 𝘴𝘤𝘩𝘰𝘰𝘭 𝘪𝘳𝘶𝘮𝘢 𝘬𝘶𝘯 ; 𝘢𝘯𝘢𝘴𝘵𝘢𝘴𝘪𝘻 ; }}$ 
   <p align="center"> $\color{#7efaf0}{\textsf{𝘵𝘩𝘦 𝘵𝘳𝘢𝘴𝘩𝘺 𝘱𝘥 𝘩𝘢𝘴 𝘵𝘰 𝘴𝘶𝘳𝘷𝘪𝘷𝘦 𝘢𝘴 𝘢𝘯 𝘐𝘥𝘰𝘭 ; 𝘣𝘳𝘢𝘸𝘭 𝘴𝘵𝘢𝘳𝘴 ; 𝘴𝘦𝘳𝘢𝘱𝘩 𝘰𝘧 𝘵𝘩𝘦 𝘦𝘯𝘥 ; 𝘧𝘰𝘨𝘭𝘢𝘯𝘥 ; 𝘵𝘩𝘦 𝘧𝘶𝘯𝘥𝘢𝘮𝘦𝘯𝘵𝘢𝘭 𝘭𝘢𝘸 ; 𝘣𝘢𝘥 𝘧𝘳𝘪𝘦𝘯𝘥 ; 𝘩𝘢𝘱𝘱𝘺 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 ; }}$
 
 ##
