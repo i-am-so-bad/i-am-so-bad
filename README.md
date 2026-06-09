@@ -35,8 +35,8 @@
    
    [*tg info*](https://t.me/painparadise/)　　👾　　[*tiktok*](https://www.tiktok.com/@boringshu/)　　🌐　　[*tg dm*](https://t.me/boringshu/)
 
-
 <img src="https://komarev.com/ghpvc/?username=i-am-so-bad&style=for-the-badge&color=fe33fe&label=⬙"/>
+
 
 
 
