@@ -1,9 +1,9 @@
 
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery38/5a4438ee.gif?v=3fc8f5cd" width="500" height="20">
+<img src="https://gifcity.carrd.co/assets/images/gallery38/5a4438ee.gif?v=3fc8f5cd" width="500" height="30">
   
 <p align="center">
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/Z1GwxhY2/815d7a933a16d3eae02721493f303620d7c78d35.gif" alt="815d7a933a16d3eae02721493f303620d7c78d35" width="500" height="270" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/Z1GwxhY2/815d7a933a16d3eae02721493f303620d7c78d35.gif" alt="815d7a933a16d3eae02721493f303620d7c78d35" width="450" height="240" border="0"></a>
 
 <p align="center">
 <img src="https://64.media.tumblr.com/52b4d8f2d5c86575ab549dfb269ebb89/604fcba5d7119327-3b/s540x810/0de984160f48e95aa51a1f3df63fe88db87d5804.gifv" width="510" height="10">
