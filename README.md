@@ -13,18 +13,18 @@
 
 <p align="center">
   <img src="https://64.media.tumblr.com/ed16e212b652825a893d0e5ebe3d5531/1b0f4996bc8b65c4-bc/s540x810/e320d09ff58889e9f90d6747773c656fddbaa0d6.gifv" >
-
 <p align="center">
 <img src="https://64.media.tumblr.com/52b4d8f2d5c86575ab549dfb269ebb89/604fcba5d7119327-3b/s540x810/0de984160f48e95aa51a1f3df63fe88db87d5804.gifv" width="510" height="10">
+
 
 
 ##
 
 
-<p align="center">$\color{#fe33fe}{\textsf{ ㅤㅤ𝘿 𝙉 𝙄 ㅤㅤ}}$ 
+<p align="center">$\color{#ff33de}{\textsf{ ㅤㅤ𝘿 𝙉 𝙄 ㅤㅤ}}$ 
   
-  <p align="center"> $\color{#7efaf0}{\textsf{ 𝙝𝙤𝙢𝙤𝙥𝙝𝙤𝙗𝙞𝙘 ; 𝙣𝙚𝙜𝙖𝙩𝙞𝙫𝙚 ; 𝙖𝙜𝙧𝙚𝙨𝙨𝙞𝙫𝙚 ; 𝙖 𝙧𝙖𝙘𝙞𝙨𝙩 𝙣𝙖𝙯𝙞𝙨𝙩 ; 𝙖 𝙗𝙪𝙡𝙡𝙮 ; m𝙖𝙣𝙮 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 ; 𝙘𝙤𝙡𝙙 ; }}$
-    <p align="center"> $\color{#7efaf0}{\textsf{ 𝙬𝙞𝙩𝙝𝙤𝙪𝙩 𝙞𝙣𝙞𝙩𝙞𝙖𝙩𝙞𝙫𝙚 𝙞𝙣 𝙘𝙤𝙢𝙢𝙪𝙣𝙞𝙘𝙖𝙩𝙞𝙤𝙣 ; 𝙪𝙣𝙙𝙚𝙧 11 }}$
+<p align="center"> $\color{#8de2df}{\textsf{  𝙝𝙤𝙢𝙤𝙥𝙝𝙤𝙗𝙞𝙘 ; 𝙣𝙚𝙜𝙖𝙩𝙞𝙫𝙚 ; 𝙖𝙜𝙧𝙚𝙨𝙨𝙞𝙫𝙚 ; 𝙖 𝙧𝙖𝙘𝙞𝙨𝙩 ; 𝙖 𝙣𝙖𝙯𝙞𝙨𝙩 ; 𝙖 𝙗𝙪𝙡𝙡𝙮 ; 𝙘𝙤𝙡𝙙 ; 𝙪𝙣𝙙𝙚𝙧 12 ; 𝙝𝙮𝙥𝙤𝙘𝙧𝙞𝙩𝙞𝙘𝙖𝙡 𝙥𝙥𝙡 ; 𝙣𝙖𝙜𝙜𝙞𝙣𝙜 𝙥𝙚𝙤𝙥𝙡𝙚  }}$
+
 
 
   
