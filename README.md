@@ -8,7 +8,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/i-am-so-bad/i-am-so-bad/blob/16acf10275a82aed2dc9aede19056da9c3d35589/rounded-in-photoretrica%20(1).png" width="600" height="600" >
+  <img src="https://github.com/i-am-so-bad/i-am-so-bad/blob/d4164b295744ae219cb0413cc15fc7d3089bbb5a/rounded-in-photoretrica%20(4).png" width="600" height="600" >
 
 
 
